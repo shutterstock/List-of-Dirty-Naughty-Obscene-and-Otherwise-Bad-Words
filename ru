@@ -68,6 +68,7 @@ zasranetc
 zassat
 zlo'ebuchy
 бздёнок
+блядина
 блядки
 блядовать
 блядство
