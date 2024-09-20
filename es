@@ -1,4 +1,3 @@
-Asesinato
 asno
 bastardo
 Bollera
@@ -66,3 +65,11 @@ Trio
 Verga
 vete a la mierda
 Vulva
+Tu madre en 4
+Ojala te mueras
+Muerete
+Puta
+Retrasado
+Panchito
+Pancho
+Gei
